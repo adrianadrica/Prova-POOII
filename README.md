@@ -1,4 +1,4 @@
-Adrian Sousa Mendes Silva
+Adriana Sousa Mendes Silva
 91603356
-Sistema de Informa√√o
+Sistema de Informa√ß√£o
 
